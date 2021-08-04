@@ -1,4 +1,4 @@
-# Daniel Nicácio Figueiredo
+# Daniel Nicácio 
 
 Técnico de Suporte @IGH | Instituto de Gestão e Humanização.
 
